@@ -1,8 +1,6 @@
 <img src="https://github.com/Mirmuxsin/Mirmuxsin/raw/main/github%20reamde%20top.png" alt="Hero image">
 
-I like experimenting with new technologies, building small projects, and occassionally joining hackathons. ✨
-
-Here's a list of things I currently keep myself busy with:
+smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth smth 
 
 
   <p align="center">
