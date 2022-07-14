@@ -1,6 +1,6 @@
 <img src="https://github.com/Mirmuxsin/Mirmuxsin/raw/main/github%20reamde%20top.png" alt="Hero image">
 
-Buy me exp cars for my open sources
+<a href="patreon.com/mirmuxsin>Buy me coffee</a>
 
 
   <p align="center">
